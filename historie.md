@@ -13,3 +13,4 @@ hvad for en?
 en Jordan 3 BLack cat
 so far so good
 ja
+hvad skal du lave i dag 
