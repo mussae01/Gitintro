@@ -12,3 +12,4 @@ jeg vil have en ny sko .....
 hvad for en?
 en Jordan 3 BLack cat
 so far so good
+ja
