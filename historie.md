@@ -7,3 +7,4 @@ hej m
 hvad laver du
 jeg er i skolen lige nu
 din hund er grim
+jeg har ikke en hund
