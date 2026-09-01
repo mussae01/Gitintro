@@ -4,3 +4,4 @@ der havde en glas
 men hunden er sure 
 hej hvad hedder du
 hej m 
+hvad laver du
